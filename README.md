@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ahamedsameera01@gmail.com**
 
-- 📄 Know about my experiences [https://in.docworkspace.com/d/sIP6T5c1F5ry_uAY?sa=cl](https://in.docworkspace.com/d/sIP6T5c1F5ry_uAY?sa=cl)
+- 📄 Resume [https://in.docworkspace.com/d/sIP6T5c1F5ry_uAY?sa=cl](https://in.docworkspace.com/d/sIP6T5c1F5ry_uAY?sa=cl)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
