@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ahamedsameera&label=Profile%20views&color=0e75b6&style=flat" alt="ahamedsameera" /> </p>
 
-- 🌱 I’m currently learning **Web Developing**
+- 🌱 I’m currently learned **Web Development**
 
 - 📫 How to reach me **ahamedsameera01@gmail.com**
 
